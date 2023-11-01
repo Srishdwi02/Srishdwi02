@@ -9,3 +9,4 @@
 - 💟 Hobbies: Lawn tennis🎾,painting🎨,trekking⛰️👟
 - 🦄 motto: One day you'll look back and say - that was the turning point of my life💙
 -->
+[![An image of @srishdwi02's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/srishdwi02)](https://holopin.io/@srishdwi02)
